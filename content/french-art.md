@@ -33,7 +33,7 @@ France largely regained this role, holding it until the mid-20th century.
 
 ## Contents
 
-- Early Modern Period
+- Early Modern Period (not contemporary)
   - Baroque and Classicism
   - Rococo and Neoclassicism
 - Modern Period
